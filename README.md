@@ -1,4 +1,4 @@
-# Mohamed Yaman Mohamed Thaha
+# Mohamed Yamani Mohamed Thaha
 
 Project #1
 
